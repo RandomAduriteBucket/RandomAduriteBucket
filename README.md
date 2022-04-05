@@ -1,4 +1,4 @@
-- Hi. I’m RandomAduriteBucket
+- Hi. I’m SplitTWO
 - I’m interested in Friday Night Funkin', FNAF, Roblox, and Music
 - I’m currently learning how to put the psych engine code into use
 - I’m looking to collaborate on any fnf mod
